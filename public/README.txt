@@ -1,0 +1,1 @@
+Adicione sua imagem forca.jpg aqui.
